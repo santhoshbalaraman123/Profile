@@ -30,11 +30,11 @@ Hello! I’m Santhosh, a dedicated DevOps enthusiast on a mission to deepen my e
  
 ## 🌐 Let's Connect
 
-Feel free to connect with me on [LinkedIn](
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/santhosh-balaraman/)
  
 ## 📫 Get in Touch
 
-I’d love to hear from you! Reach out via email at [
+I’d love to hear from you! Reach out via email at [santhoshbalaramanv@gmail.com)
  
 ---
  
